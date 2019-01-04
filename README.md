@@ -1,6 +1,4 @@
-# Leadership
-
-# My Philosophy on Leadership
+# My Leadership Philosophy
 ---
 
 ## What is this about?
