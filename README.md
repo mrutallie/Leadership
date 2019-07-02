@@ -9,14 +9,19 @@
 ---
 ### My Philosophy on Leadership 
 
----
-### My Mission
 
 ---
 ### Who I am
 
+
+
 ---
 ### What I value
+
+Faith, Family, and Integrity
+
+**Faith**
+- I have a strong Christian faith that I 
 
 ---
 ### Things I can't provide
