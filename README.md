@@ -1,4 +1,7 @@
-# My Leadership Philosophy
+# Hi, I'm Mike.
+
+
+My Leadership Philosophy
 ---
 
 ## What is this about?
