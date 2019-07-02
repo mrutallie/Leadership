@@ -1,10 +1,13 @@
 # Hi, I'm Mike.
 
 
-## My Leadership Philosophy
 
 
 ## What is this about?
+
+
+
+## My Philosophy on Leadership 
 
 
 ## My Mission
