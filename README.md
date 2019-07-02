@@ -27,3 +27,10 @@ Faith, Family, and Integrity
 ### Things I can't provide
 
 ---
+
+
+### Some Gee Whiz stuff
+
+**Personality Test results
+*(I know its not science, but it is fairly accurate)
+- MBTI - ENTJ [16 Personalities - ENTJ](https://www.16personalities.com/entj-personality)
