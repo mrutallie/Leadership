@@ -1,4 +1,4 @@
-# Hi, I'm Mike.
+## Hi, I'm Mike.
 
 
 
@@ -6,18 +6,19 @@
 ### What is this about?
 
 
+---
+### My Philosophy on Leadership 
 
-## My Philosophy on Leadership 
+---
+### My Mission
 
+---
+### Who I am
 
-## My Mission
+---
+### What I value
 
+---
+### Things I can't provide
 
-## Who I am
-
-
-## What I value
-
-
-## Things I can't provide
-
+---
