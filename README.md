@@ -33,4 +33,4 @@ Faith, Family, and Integrity
 
 **Personality Test results
 *(I know its not science, but it is fairly accurate)
-- MBTI - ENTJ [16 Personalities - ENTJ](https://www.16personalities.com/entj-personality)
+- MBTI - [ENTJ: 16 Personalities](https://www.16personalities.com/entj-personality)
