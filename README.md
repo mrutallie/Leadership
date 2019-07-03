@@ -34,3 +34,5 @@ Faith, Family, and Integrity
 **Personality Test results
 *(I know its not science, but it is fairly accurate)
 - MBTI - [ENTJ](https://www.16personalities.com/entj-personality)
+- DISC - High DC
+- Gallup Strengths Finder - 1. Achiever 2. Ideation 3. Futuristic 4. Relator 5. Learner
