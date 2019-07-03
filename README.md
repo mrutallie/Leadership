@@ -21,7 +21,13 @@
 Faith, Family, and Integrity
 
 **Faith**
-- I have a strong Christian faith that I 
+- I have a strong Christian faith that has shaped who I am today
+
+**Family**
+- I believe that family is 
+
+**Integrity**
+- 
 
 ---
 ### Things I can't provide
@@ -29,7 +35,7 @@ Faith, Family, and Integrity
 ---
 
 
-### Some Gee Whiz stuff
+### Some gee whiz stuff
 
 - MBTI - [ENTJ](https://www.16personalities.com/entj-personality)
 - DISC - High DC
