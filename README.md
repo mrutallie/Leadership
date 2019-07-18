@@ -4,7 +4,7 @@
 
 
 ### What is this about?
-
+Have you ever gotten a new leader and wonder what you are in for? What about if you are wondering what a leader is like to work for? I've been there too. That's why I have created this Readme. By the end of it, you should know a little more about me, what I stand for, and what it is like to work with me.
 
 ---
 ### My Philosophy on Leadership 
